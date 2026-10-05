@@ -1,1 +1,0 @@
-# parraangelgabrielchavez.github.io
